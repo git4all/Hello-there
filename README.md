@@ -4,3 +4,6 @@ How are you today
 
 I am hungry and my stomach is empty
 For dinner i want ot eat biryani besides beer 
+Hai guys how was the day ?
+
+I have a dell laptop with me
