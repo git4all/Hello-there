@@ -10,3 +10,5 @@ I have a dell laptop with me
 I am a good guy 
 
 Trump is the elected president of the united states of america
+
+Am going to have tea
