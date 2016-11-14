@@ -1,1 +1,4 @@
 my first text file for git
+i am feeling hungry 
+where are you
+am going to honolulu today
